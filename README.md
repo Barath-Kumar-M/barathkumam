@@ -1,1 +1,4 @@
-# barathkumam
+I am a dedicated and results-driven engineering student with a strong foundation in engineering, leadership, and strategic management. My experience spans technical development, project coordination, and organizational leadership, enabling me to drive innovation and efficiency in diverse environments.
+Having held key leadership roles in professional organizations, I have successfully managed teams, technical initiatives, and large-scale events, fostering collaboration and growth. My industry exposure through internships and entrepreneurial ventures has further strengthened my ability to analyze challenges, implement effective solutions, and optimize operations.
+I thrive in dynamic and fast-paced environments, where I can leverage my technical acumen, problem-solving mindset, and managerial skills to deliver impactful results. Open to collaborations, leadership opportunities, and strategic initiatives that drive progress and innovation.
+Let’s connect and create meaningful impact together!
